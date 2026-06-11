@@ -40,7 +40,7 @@ I am passionate about building real-world software solutions using modern techno
 
 ## 📫 Connect With Me
 
-- LinkedIn: www.linkedin.com/in/sameera-dudekula-7ba9b42a0
+- LinkedIn: www.linkedin.com/in/sameera-dudekula29
 
 ⭐ Always learning, building, and growing in technology.
 
